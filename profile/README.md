@@ -15,7 +15,7 @@ The annual Coursera Plus subscription costs $399 per year and stands out as the 
 
 [![coursera discount code](https://buddyforhelp.com/wp-content/uploads/2025/04/coursera-coupon.png)](https://imp.i384100.net/k04EPd)
 
-### Claim Coursera Coupon
+### [Claim Coursera Coupon](https://imp.i384100.net/k04EPd)
 
 ### Coursera Monthly subscription discount
 The monthly plan costs $59 and lets you cancel anytime. But paying monthly adds up to $708 over a year. The annual plan saves you $309 compared to monthly payments while giving you similar benefits and course access.
