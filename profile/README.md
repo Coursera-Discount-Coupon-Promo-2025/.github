@@ -1,16 +1,16 @@
-# Coursera Discount April 2025 → 40% + $99 OFF Coupon [$300 Deals]
+# Coursera Discount May 2025 → 40% + $99 OFF Coupon [$300 Deals]
 
 Need a Coursera coupon that works? In this article, I have listed a verified Coursera Plus discount offer where you can save 40% on the Coursera Plus annual plan. This lets you save $99 compared to monthly subscriptions.
 
-The monthly plan usually costs $59, which adds up to $708 per year. But with our discount coupon, your total comes down to just $300 with the discounted annual plan, which is just $25 monthly this April 2025. Coursera Plus discount gives you unlimited access to over 10,000 courses and professional certificates.
+The monthly plan usually costs $59, which adds up to $708 per year. But with our discount coupon, your total comes down to just $300 with the discounted annual plan, which is just $25 monthly this May 2025. Coursera Plus discount gives you unlimited access to over 10,000 courses and professional certificates.
 
 [![coursera discount](https://buddyforhelp.com/wp-content/uploads/2025/04/coursera-discount.png)](https://imp.i384100.net/k04EPd)
 
-## Latest Coursera Discount Coupon, Offers & Promo Codes (April 2025)
+## Latest Coursera Discount Coupon, Offers & Promo Codes (May 2025)
 Coursera Plus helps you save money through its subscription model that gives you access to over 10,000 courses and professional certificates from leading institutions. Here's a look at the current discount options you can get.
 
 ### Coursera Plus Annual plan Discount (Save $99)
-The annual Coursera Plus subscription costs $399 per year and stands out as the most affordable choice, but you can get a flat 25% discount on the annual plan through April 14, 2025, and it will cost you just $300.
+The annual Coursera Plus subscription costs $399 per year and stands out as the most affordable choice, but you can get a flat 25% discount on the annual plan through May 31, 2025, and it will cost you just $300.
 
 
 [![coursera discount code](https://buddyforhelp.com/wp-content/uploads/2025/04/coursera-coupon.png)](https://imp.i384100.net/k04EPd)
@@ -27,7 +27,7 @@ You can try Coursera Plus risk-free before you commit:
 - You get a 14-day money-back guarantee with the annual subscription.
 - Your completion certificates stay valid even after the trial ends.
 
-New promotional offers keep popping up throughout the year. Right now, new subscribers can get a special rate of $300 until April 14, 2025. The results speak for themselves - 77% of learners report career benefits from their Coursera Plus subscription through job opportunities, promotions, and skill development.
+New promotional offers keep popping up throughout the year. Right now, new subscribers can get a special rate of $300 until May 31, 2025. The results speak for themselves - 77% of learners report career benefits from their Coursera Plus subscription through job opportunities, promotions, and skill development.
 
 Prices vary by region - learners in India can get Coursera Plus for INR 7,499 for 12 months. Your subscription opens up unlimited access to courses from top universities and tech giants like Google, Microsoft, and IBM. While there aren't any student-specific discounts, these promotional offers work for everyone.
 
