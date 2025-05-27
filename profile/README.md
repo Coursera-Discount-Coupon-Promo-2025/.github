@@ -8,7 +8,7 @@ You're at the right place. In this article, I have shared all the working Course
 
 [![coursera coupon](https://github.com/user-attachments/assets/fc8f9a42-a012-4f51-9bfc-b048f73647be)](https://imp.i384100.net/k04EPd)
 
-** [Claim Coursera Coupon](https://imp.i384100.net/k04EPd)
+[**Claim 40% OFF On Coursera**](https://imp.i384100.net/k04EPd)
 
 ### Latest Coursera Coupon Codes & Deals
 
@@ -24,10 +24,10 @@ Click on **"Get Coupon"** to land on the offer page.
 
 ## Coursera Discount & Offers For May 2025 (Active)
 
-- **Coursera 40% Off:** Get Coursera Plus for $300 for 12 months (regularly $708). – *[Claim offer](https://imp.i384100.net/k04EPd)*
-- **Get Google AI Essentials at zero cost** – *[Claim offer](https://imp.i384100.net/k04EPd)*
-- **Get a 7-day Free Trial** – *[Claim offer](https://imp.i384100.net/k04EPd)*
-- **Get 70% OFF On Coursera Plus India Plan** – with this offer, Indian users can purchase courses at just ₹7999 which usually costs ₹33000 annually.
+- **Coursera 40% Off:** Get Coursera Plus for $300 for 12 months (regularly $708). – [**Claim offer**](https://imp.i384100.net/k04EPd)
+- **Get Google AI Essentials at zero cost** – [**Claim offer**](https://imp.i384100.net/k04EPd)
+- **Get a 7-day Free Trial** – [**Claim offer**](https://imp.i384100.net/k04EPd)
+- **Get 70% OFF On Coursera Plus India Plan** – with this offer, Indian users can purchase courses at just ₹7999, which usually costs ₹33000 annually.- [**Claim offer**](https://imp.i384100.net/k04EPd)
 
 ---
 
