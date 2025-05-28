@@ -6,7 +6,7 @@ You're at the right place. In this article, I have shared all the working Course
 
 ## Latest Coursera Discount
 
-[![coursera coupon](https://github.com/user-attachments/assets/dbe00ba7-7b7d-42aa-985d-60b8097d796d)](https://imp.i384100.net/k04EPd)
+[![coursera coupon](https://buddyforhelp.com/wp-content/uploads/2025/05/coursera-coupon-code.png)](https://imp.i384100.net/k04EPd)
 
 <div align="center">
   <a href="https://imp.i384100.net/k04EPd" style="text-decoration:none;">
@@ -16,7 +16,7 @@ You're at the right place. In this article, I have shared all the working Course
 
 ### Latest Coursera Coupon Codes & Deals
 
-[![coursera discount code](https://github.com/user-attachments/assets/171931c0-9b15-45b3-aaff-10a54063c07b)](https://imp.i384100.net/k04EPd)
+[![coursera discount code](https://buddyforhelp.com/wp-content/uploads/2025/05/Coursera-discount.png)](https://imp.i384100.net/k04EPd)
 
 Here we update the most popular and working Coursera coupon codes & with the best discounts.  
 This May, Coursera is offering **40% off** on 10,000+ courses. If you subscribe now, you'll get courses at just **$300 for 12 months** (saving $408).  
