@@ -8,7 +8,11 @@ You're at the right place. In this article, I have shared all the working Course
 
 [![coursera coupon](https://github.com/user-attachments/assets/dbe00ba7-7b7d-42aa-985d-60b8097d796d)](https://imp.i384100.net/k04EPd)
 
-[**Claim 40% OFF On Coursera**](https://imp.i384100.net/k04EPd)
+<div align="center">
+  <a href="https://imp.i384100.net/k04EPd" style="text-decoration:none;">
+    👉 <strong>Claim 40% OFF On Coursera</strong> 👈
+  </a>
+</div>
 
 ### Latest Coursera Coupon Codes & Deals
 
@@ -215,3 +219,6 @@ Monthly plan = $59/month ($708/year), but **May offer** = $300/year (40% off).
 Also, check out the **7-day free trial** before purchasing.
 
 Stay tuned — I’ll keep updating you with the latest Coursera offers and discounts!
+
+[👉 **Claim 40% OFF On Coursera** 👈](https://imp.i384100.net/k04EPd)
+
