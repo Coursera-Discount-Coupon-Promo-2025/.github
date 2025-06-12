@@ -169,6 +169,51 @@ Find the latest Coursera coupons, including:
 
 ## Coursera Coupon Code FAQs
 
+**Are there seasonal discounts for Coursera?**
+
+Yes, Coursera does offer seasonal promotions where you can snag some pretty good savings. The most popular times for discounts include:
+
+- **Black Friday**: You can expect discounts of up to 50% on Coursera Plus and other course bundles. 
+- **Holiday Seasons**: Big discounts pop up around Christmas and Easter.
+- **Back-to-School**: You'll find some great deals in late summer and early fall.
+
+These promotions usually appear on Coursera’s offers page, or sometimes you can find them through third-party coupon sites.
+
+**Can I get Coursera Coupons for specific courses like Data Science or Python?**
+
+Definitely. There are often discounts for popular courses, like Data Science, Python, and Machine Learning. Depending on the time of year, the discounts can range from 20% to 70%. For example, during certain promotions, Google’s Data Analytics Certificate might even be available at a reduced price.
+
+**Can I combine multiple Coursera Coupons?**
+
+Typically, Coursera only lets you use one coupon per transaction. However, during special events like Black Friday or Cyber Monday, you might be able to stack discounts. For instance, you could combine a seasonal sale with a coupon code for even more savings.
+
+It’s always a good idea to double-check the terms of the promotion or offer before you buy to make sure you're getting the best deal possible.
+
+**Are there Coursera Coupons for Mobile App Users?**
+
+Yep! Coursera sometimes offers special discounts for mobile app users. If you download the app for free on iOS or Android, you may come across exclusive coupon codes that are only available through the app. Just keep an eye out for notifications or banners in the app, as these deals are often for a limited time.
+
+**Are there discounts for new customers?**
+
+Coursera doesn’t offer regular discounts just for new customers, but there’s still a nice perk. New users can take advantage of a 7-day free trial for Coursera Plus, which gives you access to a variety of courses without any commitment upfront. Plus, during certain promotions like New Year or Back-to-School Sales, new customers often get exclusive discounts on courses.
+
+**Does Coursera offer discounts for teams or organizations?**
+
+Yes, there are discounts for teams. Coursera for Teams offers savings for organizations that want to enroll multiple learners. Depending on how many subscriptions your team purchases, you could save up to 25%. It’s a great option for businesses that want to invest in employee training across fields like technology, business, or healthcare.
+
+**Are there region-specific Coursera Coupons?**
+
+Yes, Coursera has region-specific discounts for users in different countries. For example:
+
+- **India**: The Coursera Plus India Plan is available for just ₹7999 annually, which is usually priced at ₹33,000.
+- **Europe/US**: You might see regional offers for Coursera Plus that include discounts of up to 40%.
+
+To find these local deals, check out Coursera’s country or region pages, or take a look at third-party coupon sites that specialize in regional offers.
+
+**Does Coursera offer discounts on certificate programs?**
+
+Yes! Most of the discounts on Coursera also apply to certificate programs. When you subscribe to Coursera Plus at a discounted price, you can earn certificates for courses from prestigious universities like Stanford, the University of Michigan, and Google. Just keep in mind that some high-demand certificates might not be included in certain promotions, so always make sure to read the fine print before applying any coupon codes.
+
 **How do I use Coursera coupons?**  
 Applying the Coursera code is very easy. Click on the "**Get Coupon**" box, and you'll get automatically redirected to the official Coursera website with the best coupon automatically applied.
 
