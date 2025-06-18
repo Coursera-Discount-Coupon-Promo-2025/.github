@@ -7,7 +7,7 @@
 [![coursera coupon](https://buddyforhelp.com/wp-content/uploads/2025/05/coursera-coupon-code.png)](https://imp.i384100.net/JKW4xa)
 
 <div align="center">
-  <a href="https://imp.i384100.net/k04EPd" style="text-decoration:none;">
+  <a href="https://imp.i384100.net/JKW4xa" style="text-decoration:none;">
     👉 <strong>Claim 40% OFF On Coursera</strong> 👈
   </a>
 </div>
