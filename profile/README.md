@@ -1,12 +1,10 @@
-# 50% Off + $299 Promo Code Coursera Coupon - June 2025
+# Coursera Coupon June 2025: 40% Off Plus $309 Discount
 
-Are you looking for a Legit Coursera Coupon?
-
-You're at the right place. In this article, I have shared all the working Coursera coupon codes.
+**Coursera Coupon Alert:** Right now, there's an official Coursera Plus discount of 40%, exclusively for new users. If you’re new to Coursera, use this Coursera coupon to get 3 months of unlimited access at just **$35.40/month** (usually **$59/month**), saving you over **$70** instantly.
 
 ## Latest Coursera Discount
 
-[![coursera coupon](https://buddyforhelp.com/wp-content/uploads/2025/05/coursera-coupon-code.png)](https://imp.i384100.net/k04EPd)
+[![coursera coupon](https://buddyforhelp.com/wp-content/uploads/2025/05/coursera-coupon-code.png)](https://imp.i384100.net/JKW4xa)
 
 <div align="center">
   <a href="https://imp.i384100.net/k04EPd" style="text-decoration:none;">
@@ -16,13 +14,15 @@ You're at the right place. In this article, I have shared all the working Course
 
 ### Latest Coursera Coupon Codes & Deals
 
-[![coursera discount code](https://buddyforhelp.com/wp-content/uploads/2025/05/Coursera-discount.png)](https://imp.i384100.net/k04EPd)
+[![coursera discount code](https://buddyforhelp.com/wp-content/uploads/2025/05/Coursera-discount.png)](https://imp.i384100.net/JKW4xa)
 
 Here we update the most popular and working Coursera coupon codes & with the best discounts.  
-This June, Coursera is offering **40% off** on 10,000+ courses. If you subscribe now, you'll get courses at just **$300 for 12 months** (saving $408).  
+This June, Coursera is offering **40% off** on 10,000+ courses. If you subscribe now, you'll get courses at just **$35.40/month instead of $59/month for 3 months.** (saving $309).  
 
 So, don't wait to claim the discount now.  
 Click on **"Get Coupon"** to land on the offer page.
+
+[![coursera plus discount code](https://buddyforhelp.com/wp-content/uploads/2025/06/coursera-plus-discount-code.png)](https://imp.i384100.net/JKW4xa)
 
 > **Attention:** Claim this special limited-time offer by **June 30, 2025**.
 
@@ -30,9 +30,9 @@ Click on **"Get Coupon"** to land on the offer page.
 
 ## Coursera Discount & Offers For June 2025 (Active)
 
-- **Coursera 40% Off:** Get Coursera Plus for $300 for 12 months (regularly $708). – [**Claim offer**](https://imp.i384100.net/k04EPd)
-- **Get Google AI Essentials at zero cost** – [**Claim offer**](https://imp.i384100.net/k04EPd)
-- **Get a 7-day Free Trial** – [**Claim offer**](https://imp.i384100.net/k04EPd)
+- **Coursera 40% Off:** Get Coursera Plus for $35.40/month (regularly $708). – [**Claim offer**](https://imp.i384100.net/JKW4xa)
+- **Get Google AI Essentials at zero cost** – [**Claim offer**](https://imp.i384100.net/JKW4xa)
+- **Get a 7-day Free Trial** – [**Claim offer**](https://imp.i384100.net/JKW4xa)
 - **Get 70% OFF On Coursera Plus India Plan** – with this offer, Indian users can purchase courses at just ₹7999, which usually costs ₹33000 annually.- [**Claim offer**](https://imp.i384100.net/k04EPd)
 
 ---
@@ -41,13 +41,13 @@ Click on **"Get Coupon"** to land on the offer page.
 
 ### Step 1
 
-[![coursera discount code](https://buddyforhelp.com/wp-content/uploads/2025/04/how-to-claim-coursera-discount.png)](https://imp.i384100.net/k04EPd)
+[![coursera discount code](https://buddyforhelp.com/wp-content/uploads/2025/04/how-to-claim-coursera-discount.png)](https://imp.i384100.net/JKW4xa)
 
 Click on the **“Get Coupon”** button above. It will redirect you to the official Coursera website.
 
 ### Step 2
 
-[![steps to redeem coursera coupon](https://buddyforhelp.com/wp-content/uploads/2025/04/final-step-to-redeem-coursera-coupon.png)](https://imp.i384100.net/k04EPd)
+[![steps to redeem coursera coupon](https://buddyforhelp.com/wp-content/uploads/2025/04/final-step-to-redeem-coursera-coupon.png)](https://imp.i384100.net/JKW4xa)
 
 The coupon code will auto-apply when you go through our link. You'll also find the special 7-day free trial offer.
 
@@ -86,7 +86,7 @@ Whether you're upskilling, changing careers, or pursuing a passion, Coursera is 
 Get Coursera Plus annual membership at **$399/year** (40% discount).  
 Access world-class courses, Specializations, and Certificates from top universities.
 
-- **[Claim This Offer]((https://imp.i384100.net/k04EPd))**
+- **[Claim This Offer]((https://imp.i384100.net/JKW4xa))**
 
 ---
 
@@ -265,5 +265,5 @@ Also, check out the **7-day free trial** before purchasing.
 
 Stay tuned — I’ll keep updating you with the latest Coursera offers and discounts!
 
-[👉 **Claim 40% OFF On Coursera** 👈](https://imp.i384100.net/k04EPd)
+[👉 **Claim 40% OFF On Coursera** 👈](https://imp.i384100.net/JKW4xa)
 
