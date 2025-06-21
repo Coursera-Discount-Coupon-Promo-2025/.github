@@ -1,35 +1,38 @@
-# Coursera Coupon June 2025: 40% Off Plus $309 Discount
+# Coursera Coupon June 2025: 50% Off Plus $200 Discount
 
-**Coursera Coupon Alert:** Right now, there's an official Coursera Plus discount of 40%, exclusively for new users. If you’re new to Coursera, use this Coursera coupon to get 3 months of unlimited access at just **$35.40/month** (usually **$59/month**), saving you over **$70** instantly.
+Are you looking for a legit Coursera coupon?
 
-## Latest Coursera Discount
+You're at the right place. Currently, Coursera is offering a huge **50% discount** on their Plus plan annually. Grab this Coursera discount at just **$199**, which usually costs **$399**. So Hurry!! Claim it now.
 
-[![coursera coupon](https://buddyforhelp.com/wp-content/uploads/2025/05/coursera-coupon-code.png)](https://imp.i384100.net/JKW4xa)
+## Latest Coursera Discount Code
+
+[![coursera coupon](https://buddyforhelp.com/wp-content/uploads/2025/06/coursera-discount-coupon-1.png)](https://imp.i384100.net/bO09Jg)
 
 <div align="center">
-  <a href="https://imp.i384100.net/JKW4xa" style="text-decoration:none;">
-    👉 <strong>Claim 40% OFF On Coursera</strong> 👈
+  <a href="https://imp.i384100.net/bO09Jg" style="text-decoration:none;">
+    👉 <strong>Claim 50% OFF On Coursera</strong> 👈
   </a>
 </div>
 
-### Latest Coursera Coupon Codes & Deals
+### Live Coursera Coupon Codes & Discount (June 2025)
 
-[![coursera discount code](https://buddyforhelp.com/wp-content/uploads/2025/05/Coursera-discount.png)](https://imp.i384100.net/JKW4xa)
+[![coursera discount code](https://buddyforhelp.com/wp-content/uploads/2025/06/Gra.png)](https://imp.i384100.net/bO09Jg)
 
 Here we update the most popular and working Coursera coupon codes & with the best discounts.  
-This June, Coursera is offering **40% off** on 10,000+ courses. If you subscribe now, you'll get courses at just **$35.40/month instead of $59/month for 3 months.** (saving $309).  
+This June, Coursera is offering **50% off** on 10,000+ courses. If you subscribe now, you'll get courses at just **$199 for 12 months** (regularly **$399**)
+** (saving $200).  
 
 So, don't wait to claim the discount now.  
 Click on **"Get Coupon"** to land on the offer page.
 
-[![coursera plus discount code](https://buddyforhelp.com/wp-content/uploads/2025/06/coursera-plus-discount-code.png)](https://imp.i384100.net/JKW4xa)
+[![coursera plus discount code](https://buddyforhelp.com/wp-content/uploads/2025/06/coursera-plus-discount.png)](https://imp.i384100.net/JKW4xa)
 
 > **Attention:** Claim this special limited-time offer by **June 30, 2025**.
 
 ---
 
 ## Coursera Discount & Offers For June 2025 (Active)
-
+- **Coursera 50% Off:** Get Coursera Plus for $199 (regularly $399). – [**Claim offer**](https://imp.i384100.net/bO09Jg)
 - **Coursera 40% Off:** Get Coursera Plus for $35.40/month (regularly $708). – [**Claim offer**](https://imp.i384100.net/JKW4xa)
 - **Get Google AI Essentials at zero cost** – [**Claim offer**](https://imp.i384100.net/JKW4xa)
 - **Get a 7-day Free Trial** – [**Claim offer**](https://imp.i384100.net/JKW4xa)
